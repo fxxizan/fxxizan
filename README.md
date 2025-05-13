@@ -10,3 +10,6 @@ ROBLOX - [TalFaizan](https://www.roblox.com/users/110172890/profile)
 
 Youtube - [Fxizan](https://www.youtube.com/@Fxizan)
 
+## Statistics
+
+![](https://komarev.com/ghpvc/?username=fxxizan&style=for-the-badge&color=blueviolet)
